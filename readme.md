@@ -1,0 +1,1 @@
+this project contains the recipe for coking the jera tice and dal fry
